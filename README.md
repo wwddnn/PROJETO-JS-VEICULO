@@ -19,5 +19,7 @@
 
 ## 👓PRINT:
 ![image](https://github.com/user-attachments/assets/522b5042-0102-4750-8012-cf7cd67a37d5)
+![image](https://github.com/user-attachments/assets/f5a1a5b6-3725-496a-8ddb-176b593b9c4b)
+
 
 
