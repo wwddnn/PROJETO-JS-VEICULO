@@ -16,3 +16,8 @@
 
 ## 🤚DESENVOLVIDO POR:
 - por mim (Warley Dias) com criatividade, constância e dedicação
+
+## PRINT:
+![image](https://github.com/user-attachments/assets/522b5042-0102-4750-8012-cf7cd67a37d5)
+
+
